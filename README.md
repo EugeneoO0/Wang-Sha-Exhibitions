@@ -18,4 +18,4 @@ Beyond the stage, Wang Sha was a dedicated mentor and cultural advocate, remembe
 - Amy Lin
 
 ### Scanned by
-**Eugene**
+**Eugene Chen**
